@@ -1,4 +1,4 @@
-👋** Hello, Sou a Lua @Luavagas!**
+👋**Hello, Sou a Lua @Luavagas!**
 - 👀 Tenho interesse em conhecer desenvolvedores que estão em busca de novos desafios.
 - 💞️ Tenho + 4 anos de experiência com RH/People; 
 - ✨ Formada em Licenciatura em Química, Pós-graduada MBA em Gestão de Pessoas na UNISINOS;
@@ -6,7 +6,7 @@
 - 📫 Tem alguma duvida ou gostaria de falar comigo? Podem me chamar no linkedin ou me mandar uma mensagem em **(11) 91408-5820**
 - ⚡ Curiosidades sobre mim: Sou faixa Azul de Jiu-Jitsu \o, viciada em academia, e torcedora do #Bahia.
   
-**Skills **
+**Skills**
 - Gupy | Linkedin Recruiter | Feedz 
 - Sourcing/Hunting | Entrevista e Análise comportamental | Recrutamento end-to- end | Recrutamento para times globais | Onboarding.
 
